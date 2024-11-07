@@ -18,3 +18,13 @@ lavondasheldon@icloud.com
 myungdevine@icloud.com
 grayceskelton@icloud.com
 amytran99@icloud.com
+roseleegraf3577@icloud.com
+lasonyawatters@icloud.com
+aleesha.armstrong@icloud.com
+lilliweinstein@icloud.com
+teraswartz76577@icloud.com
+youlandagoff@icloud.com
+kanishapuckett@icloud.com
+dorthyhood@icloud.com
+seymourharden@icloud.com
+yoshikochisholm@icloud.com
