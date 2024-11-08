@@ -38,3 +38,13 @@ grayceskelton12@icloud.com
 alidafaber9356@icloud.com
 nydiadoe@icloud.com
 amadanewsome@icloud.com
+natehiggins222@icloud.com
+shoutout2gu@icloud.com
+fabiolamackey2310@icloud.com
+gazebocontext@icloud.com
+maurahooper1@icloud.com
+osvaldosolano0465@icloud.com
+chiquitapereira@icloud.com
+kathycunningham99@icloud.com
+melinagoodson@icloud.com
+norbertoholder@icloud.com
